@@ -1,0 +1,1 @@
+The biggest bottleneck is that I need a lot of money to invest initially.
